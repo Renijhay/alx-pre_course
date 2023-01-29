@@ -1,1 +1,1 @@
-ALX is tough but fun, Iencourage you to try it out!
+ALX is tough but fun, I encourage you to try it out!
